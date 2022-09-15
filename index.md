@@ -8,7 +8,6 @@ Sorry about that! We will be back soon!
 In the meentime, take a look at the posts and the site using the link at the bottem of this site!
 
 Thanks for coming! :)
-[Link to new site](http://ttforums.sytes.net/)
 
 
 **News Blog**
