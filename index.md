@@ -20,4 +20,9 @@ _**Nothing here, move along! XD**_
 [Discord](https://discord.com/invite/ghcf3M5Xnq)
 [Youtube](https://www.youtube.com/c/STV2008Studios/featured)
 [Github](https://github.com/ShaunTheVyonder2008)
+
+
+
+
+
 **Copyright TTNRT 2017 - 2022, All rights reserved! Part of INRT with Google**
