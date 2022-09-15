@@ -21,7 +21,7 @@ _**Nothing here, move along! XD**_
 [Github](https://github.com/ShaunTheVyonder2008)
 [Link to new site](http://ttforums.sytes.net/)
 
-<iframe src="https://discord.com/widget?id=704348453115002882&theme=dark" width="350" height="500" allowtransparency="true" frameborder="0" sandbox="allow-popups allow-popups-to-escape-sandbox allow-same-origin allow-scripts"></iframe>
+
 
 
 **Copyright TTNRT 2017 - 2022, All rights reserved! Part of INRT with Google**
